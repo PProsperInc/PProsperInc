@@ -47,7 +47,7 @@ I'm a passionate self-taught developer and Forex trader who loves turning ideas 
 
 ### 📫 Let's Connect
 
-- 📩 Email: **prosperamoah.dev@gmail.com**  
+- 📩 Email: **asareamoahp@gmail.com**  
 - 💼 LinkedIn: [Prosper Amoah](https://www.linkedin.com/in/prosperamoah)  
 - 🐦 Twitter: [@PProsperInc](https://twitter.com/PProsperInc)
 
